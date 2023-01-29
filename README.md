@@ -14,7 +14,7 @@
 
 - 📫 You can reach me [Email](mailto:adekoyadapo@gmail.com)
 
-- 📄 Want to find out more, my resume is at [My resume site](https://acubed.tk)
+- 📄 Want to find out more, my resume is at [My resume site](https://resume.360ace.net)
 
 <h3 align="left">Connect with me:</h3>
 
